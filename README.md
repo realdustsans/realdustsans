@@ -41,4 +41,7 @@
 <p align="center">
   $\color{#3F549A}{\text{looking for more friends.. be our friend pls!}}$
 </p>
-![25f21d646a36e0e051196c54b9c979f5](https://files.catbox.moe/8216wn.png)
+
+<p align="center">
+  <img width="839" height="839" alt="Untitled379_20260507190016" src="https://github.com/user-attachments/assets/dfbf49d5-24b9-4378-ba92-5dfdc71afa60" />
+</p>
