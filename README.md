@@ -38,7 +38,7 @@
 <p align="center">
   $\color{#242c96}{\text{offtab most of the time, pls w2i}}$
 <p align="center">
-  $\color{#161e8a}{\text{c+h anytime! we love sitting with others no bite ^_^}}$
+  $\color{#161e8a}{\text{c+h anytime! we love sitting with others no bite !}}$
 </p>
 </p>
 <p align="center">
