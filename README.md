@@ -24,7 +24,7 @@
   $\color{#6d74b3}{\text{𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡}}$
 </p>
 <p align="center">
-  $\color{#2a37b0}{\text{𓈒  DNI under 14 , endo systems , basic dni 𓈒 }}$
+  $\color{#2a37b0}{\text{𓈒  DNI under 13 , endo systems , basic dni 𓈒 }}$
 </p>
 <p align="center">
   $\color{#2a37b0}{\text{𓈒  Thin Ice : roleplayers , +21 , VERY flirty people 𓈒 }}$
@@ -38,7 +38,7 @@
 <p align="center">
   $\color{#242c96}{\text{offtab most of the time, pls w2i}}$
 <p align="center">
-  $\color{#161e8a}{\text{c+h anytime! we love sitting with others}}$
+  $\color{#161e8a}{\text{c+h anytime! we love sitting with others no bite ^_^}}$
 </p>
 </p>
 <p align="center">
