@@ -11,14 +11,13 @@
   $\color{#6d74b3}{\text{𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡}}$
 </p>
 <p align="center">
-  $\color{#3856b0}{\text{zombi / axel / murder
-}}$ 
+  $\color{#3856b0}{\text{𓈒  zombi / axel / murder 𓈒 }}$ 
 </p>
 <p align="center">
-  $\color{#3F549A}{\text{we're transmasc + system}}$ 
+  $\color{#3F549A}{\text{𓈒  we're transmasc + system 𓈒 }}$ 
 </p>
 <p align="center">
-  $\color{#494EA4}{\text{masc prns .  singular + plural}}$ 
+  $\color{#494EA4}{\text{𓈒  masc prns .  singular + plural 𓈒 }}$ 
 </p>
 <p align="center">
   $\color{#6d74b3}{\text{𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡}}$
@@ -36,13 +35,13 @@
   $\color{#6d74b3}{\text{𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡}}$
 </p>
 <p align="center">
-  $\color{#242c96}{\text{offtab most of the time, pls w2i}}$
+  $\color{#242c96}{\text{𓈒  offtab most of the time, pls w2i 𓈒 }}$
 <p align="center">
-  $\color{#161e8a}{\text{c+h anytime! we love sitting with others no bite !}}$
+  $\color{#161e8a}{\text{𓈒  c+h anytime! we love sitting with others no bite ! 𓈒 }}$
 </p>
 </p>
 <p align="center">
-  $\color{#3F549A}{\text{looking for more friends.. be our friend pls!}}$
+  $\color{#3F549A}{\text{𓈒  looking for more friends.. be our friend pls! 𓈒 }}$
 </p>
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
