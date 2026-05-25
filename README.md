@@ -14,7 +14,7 @@
   $\color{#3856b0}{\text{𓈒  zombi / axel / murder 𓈒 }}$ 
 </p>
 <p align="center">
-  $\color{#3F549A}{\text{𓈒  we're transmasc + system 𓈒 }}$ 
+  $\color{#3F549A}{\text{𓈒  we're a bodily 16 transmasc system 𓈒 }}$ 
 </p>
 <p align="center">
   $\color{#494EA4}{\text{𓈒  masc prns .  singular + plural 𓈒 }}$ 
