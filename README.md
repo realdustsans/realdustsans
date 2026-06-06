@@ -48,7 +48,7 @@
 </p>
     
 <p align="center">
-  <a href="https://rentry.co/brainsdust">𓈒  rentry .  </a> <a href="https://rawblood.atabook.org/">  新book 𓈒 </a> <a href="https://pronouns.cc/@ggloriouss">𓈒  prns .  </a>
+  <a href="https://rentry.co/brainsdust">𓈒  rentry .  </a> <a href="https://rawblood.atabook.org/">  新book . </a> <a href="https://pronouns.cc/@ggloriouss">prns 𓈒  </a>
 </p>
 
 <p align="center">
