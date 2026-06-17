@@ -22,9 +22,11 @@
 
 𓈒 anytime im on ponytown im most likely offtab so i prefer u whisper me if u wanna interact.. sometimes i reply late !
 
-𓈒 c+h is heavily enc , i love sitting with people !! im mostly seeen with my friends in the UT area im rarely anywhere else
+𓈒 c+h is heavily enc , i love sitting with people !! i have a HUGE touch comfort in this game.. im mostly seeen with my friends in the UT area im rarely anywhere else
 
 𓈒 i dont use plural unless im adressing everyone, i prefer to avoid confusion! im fronting all the time either way LOL
+
+𓈒 i don't really use caps dont jump me because im not always typing in all caps and hyper
 
 </details>
 
@@ -41,12 +43,18 @@
 
 𓈒 when u first meet me im a REALLY quiet and closed off person, once i warm up to you i become a big talker
 
+𓈒 not a person who starts convos.. sorrrrrrrrrry i talk with people who are more talkative than me
+
+𓈒 sometmes i misspell really bad pls tell me if u cant read my messages , i also don't use tonetags so do tell if u need them
+
 </details>
 
 <details>
   <summary>⠀DNI　  ₎₎</summary>
 
 𓈒 basic dni . IF YOU ARE UNDER 15 PLEASE DON'T INTERACT WITH ME !!! senstitive people dni alsooo
+
+𓈒 any endos... or disorder fakers... or anything like that... ok?
 
 𓈒 roleplayers + WEIRD yumeshippers. i really hate roleplaying or just seeing anything about it.. i don't like yumeshippers in general due to my past experiences with them
 
@@ -55,6 +63,8 @@
 𓈒 really flirty people. it genuinely makes me uncomfortable, small platonic flirting is allowed but only with my close friends.. 
 
 𓈒 yaoi/yuri fetishizers or just make their whole person about it.
+
+𓈒 any killerchat fans, if you're already my friend but like this game i guess it's alright 
 
 </details>
 
