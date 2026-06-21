@@ -60,11 +60,11 @@
 
 𓈒 any exes + ex friends ! there is a reason i cut them off and do NOT want to interact with again. same goes for any drama related stuff.
 
-𓈒 really flirty people. it genuinely makes me uncomfortable, small platonic flirting is allowed but only with my close friends.. same thing goes for sexual stuff
+𓈒 really flirty people. it genuinely makes me uncomfortable, small platonic flirting is allowed but only with my close friends.. same thing goes for sexual stuff but it really just depends if im comfortable with you
 
 𓈒 yaoi/yuri fetishizers or just make their whole person about it.
 
-𓈒 any killerchat fans, if you're already my friend but like this game i guess it's alright . same goes for HH/HB
+𓈒 any killerchat fans, if you're already my friend but like this game i guess it's alright . ?
 
 </details>
 
