@@ -16,7 +16,7 @@
 
 𓈒 bodily 17, use he/they pronouns on me thankss
 
-𓈒 im trans (ftm) , asexual , and queerplatonic ! my relationship status is single and im not looking to date ANYONE i prefer queerplatonic relationships
+𓈒 im trans (ftm) , asexual , and queerplatonic ! i am currently single and i don't desire romantic relationships since im queerplatonic LOL
 
 𓈒 im the host of a medically recognized P-DID system, don't have a diagnosis yet due 2 personal issues i prefer not to talk about it
 
@@ -62,7 +62,7 @@
 
 𓈒 really flirty people. it genuinely makes me uncomfortable, small platonic flirting is allowed but only with my close friends.. same thing goes for sexual stuff but it really just depends if im comfortable with you
 
-𓈒 yaoi/yuri fetishizers or just make their whole person about it.
+𓈒 yaoi/yuri fetishizers or just make their whole person about it. i really hate when people are constantly referring to wlw or mlm as yuri or yaoi, ESPECIALLY in anime sorry it just cringes me out sorry.
 
 𓈒 any killerchat fans, if you're already my friend but like this game i guess it's alright . ?
 
