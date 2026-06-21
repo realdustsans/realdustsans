@@ -10,7 +10,7 @@
 </p>
 
 <details>
-  <summary>⠀INFO　  ₎₎</summary>
+  <summary>──⠀INFO　  ₎₎</summary>
 
 𓈒 hi hello you can either call me by zombi or axel! these are our collective names.. murder is okay, i prefer if ONLY my friends use it on me. any nicknames are fine, i LOVE them!!
 
@@ -31,7 +31,7 @@
 </details>
 
 <details>
-  <summary>⠀BYI　  ₎₎</summary>
+  <summary>──⠀BYI　  ₎₎</summary>
 
 𓈒 i am currently recovering and in the process of getting actual therapy, iwc at all times
 
@@ -50,7 +50,7 @@
 </details>
 
 <details>
-  <summary>⠀DNI　  ₎₎</summary>
+  <summary>──⠀DNI　  ₎₎</summary>
 
 𓈒 basic dni . IF YOU ARE UNDER 15 PLEASE DON'T INTERACT WITH ME !!! 14 years old are thin ice,, senstitive people dni alsooo i can hurt u really easily and i dont want that
 
@@ -69,7 +69,7 @@
 </details>
 
 <details>
-  <summary>⠀MORE　  ₎₎</summary>
+  <summary>──⠀MORE　  ₎₎</summary>
 
 𓈒 i have really bad memory,, i forget a LOT of stuff sorry
 
