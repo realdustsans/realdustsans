@@ -83,7 +83,7 @@
 
 𓈒 i seomtimes act mean. A A JOKE AS JOOKE AAS AJOKE IM NOT MEAN ON PURPOSE!!
 
-𓈒 ask any questions , if u have anylol 
+𓈒 ask any questions , if u have anylol . My github looks so ass on mobile im sorry if you're on mobile and seeing it LOLLL
 
 </details>
 
