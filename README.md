@@ -20,7 +20,7 @@
 
 𓈒 im trans (ftm) , aroace , and queerplatonic 
 
-𓈒 im the host of a medically recognized P-DID system, don't have a diagnosis yet due 2 personal issues i prefer not to talk about it
+𓈒 im a dust sans introject n the host of a medically recognized P-DID system, don't have a diagnosis yet due 2 personal issues i prefer not to talk about it
 
 𓈒 anytime im on ponytown im most likely offtab either in bed or playing roblox so i prefer u whisper me if u wanna interact.. sometimes i reply late or just dont respond at all
 
