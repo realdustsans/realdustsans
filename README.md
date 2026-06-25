@@ -2,7 +2,7 @@
 ![](https://komarev.com/ghpvc/?username=realdustsans&color=c593ea&label=MOONLIT+WATCHERS&style=for-the-badge&base=2576)
 
 <p align="center">
-  <img width="450" height="450" alt="634dbfcfedccf9237cdb74286f06a52c" src="https://github.com/realdustsans/realdustsans/blob/main/Untitled399_20260621141653%20(1).png?raw=true" />
+  <img width="350" height="350" alt="634dbfcfedccf9237cdb74286f06a52c" src="https://github.com/realdustsans/realdustsans/blob/main/Untitled399_20260621141653%20(1).png?raw=true" />
 </p>
 
 <p align="center">
