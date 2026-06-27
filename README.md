@@ -16,19 +16,19 @@
 
 𓈒 bodily 17, use he/they pronouns on me thankss
 
-𓈒 i speak english but i can understand other languages like spanish and russian but i sometimes use a translator
+𓈒 i speak english but i can understand other languages like spanish and russian but i sometimes use a translator lelelelel. i was born in texas yeehaw im cowboy 
 
 𓈒 im trans (ftm) , aroace , and queerplatonic 
 
-𓈒 im a dust sans introject n the host of a medically recognized P-DID system, don't have a diagnosis yet due 2 personal issues i prefer not to talk about it
+𓈒 im a dust sans introject n the host of a medically recognized P-DID system, don't have a diagnosis yet due 2 personal issues i prefer not to talk about it and just. living in america sigh
 
 𓈒 anytime im on ponytown im most likely offtab either in bed or playing roblox so i prefer u whisper me if u wanna interact.. sometimes i reply late or just dont respond at all
 
-𓈒 c+h is heavily enc , i love sitting with people !! i have a HUGE touch comfort in this game.. im mostly seeen with my friends in the UT area im rarely anywhere else
+𓈒 c+h is heavily enc , i love sitting with people !! i have a HUGE touch comfort in this game.. im mostly seeen with my friends in the UT area im rarely anywhere else unless i get dragged LOLL
 
-𓈒 i dont use really use plural i only use plural on some occassions 
+𓈒 i use plural on some occassions but i mostly use singular prns ykyk
 
-𓈒 i don't really use caps dont jump me because im not always typing in all caps and hyper.. 
+𓈒 i don't really use caps dont jump me because im not always typing in all caps and hyper.. im usually dry siiigh only certain people bring out the actual me heart
 
 </details>
 
@@ -58,22 +58,22 @@
 
 𓈒 any endos... or disorder fakers... or fakeclaimers.. or transids.. or radqueers.. or anything like that... ok thank
 
-𓈒 roleplayers + WEIRD yumeshippers. i really hate roleplaying or just seeing anything about it.. i don't like yumeshippers in general due to my past experiences with them
+𓈒 roleplayers + WEIRD yumeshippers. i really hate roleplaying or just seeing anything about it.. i don't like yumeshippers in general due to my past experiences with them but i still respect them yk? ok
 
-𓈒 any exes + ex friends ! there is a reason i cut them off and do NOT want to interact with again. same goes for any drama related stuff.
+𓈒 any exes + ex friends ! i cut them off for a reason hence why i dont want them interacting with me again ^^ same goes for any drama related stuff guys leave me alone its been years
 
 𓈒 really flirty people. it genuinely makes me uncomfortable, small platonic flirting is allowed but only with my close friends.. same thing goes for sexual stuff but it really just depends if im comfortable with you
 
 𓈒 yaoi/yuri fetishizers or just make their whole person about it. i really hate when people are constantly referring to wlw or mlm as yuri or yaoi, ESPECIALLY in anime sorry it just cringes me out sorry.
 
-𓈒 any killerchat fans, if you're already my friend but like this game i guess it's alright . ?
+𓈒 any killerchat fans, if you're already my friend but like this game i guess it's alright . ? 
 
 </details>
 
 <details>
   <summary>──⠀MORE　  ₎₎</summary>
 
-𓈒 i have really bad memory,, i forget a LOT of stuff sorry
+𓈒 i have really bad memory,, i forget a LOT of stuff sorry i often ask a bunch of questions due to this
 
 𓈒 COMMUNICATE WITH ME IF I MAKE U UNCOMOFRTABLE OR ANNOYED !! i cannot read people's minds and i need to know what i did wrong! i pester people about this a lot. yes guys i tkae accountability of my actionbs
 
