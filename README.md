@@ -92,7 +92,7 @@
 </p>
 
 <p align="center">
-  <a href="https://rentry.co/brainsdust"> rentry</a>⠀⠀⠀⠀<a href="https://rawblood.atabook.org/">新book</a>⠀⠀⠀⠀<a href="https://pronouns.cc/@ggloriouss">prns</a>
+  <a href="https://rentry.co/brainsdust"> rentry</a>⠀⠀⠀⠀<a href="https://rawblood.atabook.org/">新book</a>⠀⠀⠀⠀<a href="https://pronouns.cc/@realdustsans">prns</a>
 </p>
 
 <p align="center">
