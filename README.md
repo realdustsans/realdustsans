@@ -1,5 +1,5 @@
 
-![](https://komarev.com/ghpvc/?username=realdustsans&color=c593ea&label=rotten+rabbits&style=for-the-badge&base=2676)
+![](https://komarev.com/ghpvc/?username=realdustsans&color=c593ea&label=ROTTEN+RABBITS&style=for-the-badge&base=2676)
 
 <p align="center">
   <img width="350" height="350" alt="634dbfcfedccf9237cdb74286f06a52c" src="https://github.com/realdustsans/realdustsans/blob/main/Untitled399_20260621141653%20(1).png?raw=true" />
