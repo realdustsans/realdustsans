@@ -24,7 +24,7 @@
 
 𓈒 ⠀⠀anytime im on ponytown im most likely offtab either in bed or playing roblox so i prefer u whisper me if u wanna interact.. sometimes i reply late or just dont respond at all
 
-𓈒 ⠀⠀c+h is heavily enc , i love sitting with people !! cuddle piles are my favorite in this stupid pony game hah i have a HUGE touch comfort .. im mostly seeen with my friends in the UT area im rarely anywhere else unless i get dragged LOLL sometimes im at docks
+𓈒 ⠀⠀c+h is heavily enc , i love sitting with people !! cuddle piles are my favorite in this stupid pony game hah i have a HUGE touch comfort .. im always at ut area its my home i dont like any other places LMAO
 
 𓈒 ⠀⠀i switch between using plural and singular 
 
