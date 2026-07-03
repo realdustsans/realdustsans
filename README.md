@@ -66,7 +66,7 @@
 
 𓈒 ⠀⠀yaoi/yuri fetishizers or just make their whole person about it. i really hate when people are constantly referring to wlw or mlm as yuri or yaoi, ESPECIALLY in anime sorry it just cringes me out sorry.
 
-𓈒⠀⠀ any killerchat fans, if you're already my friend but like this game i guess it's alright . ? 
+𓈒⠀⠀ any killerchat fans, if you're already my friend but like this game i guess it's alright . ? this game doesn't have any problems it just reminds me of people i dont wanna be reminded of LOL
 
 </details>
 
