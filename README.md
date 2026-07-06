@@ -54,7 +54,7 @@
 <details>
   <summary>──⠀DNI　  ₎₎</summary>
 
-𓈒 ⠀⠀basic dni . IF YOU ARE UNDER 15 PLEASE DON'T INTERACT WITH ME !!! 14 years old are thin ice i jjust wont add on any texting apps,, senstitive people dni alsooo i can hurt u really easily and i dont want that
+𓈒 ⠀⠀basic dni . IF YOU ARE UNDER 15 PLEASE DON'T INTERACT WITH ME !!! i dont MIND 14 years old just beware that im older ok? yeah ok. senstitive people dni alsooo i can hurt u really easily and i dont want that
 
 𓈒 ⠀⠀any endos... or disorder fakers... or fakeclaimers.. or transids.. or radqueers.. or anything like that... ok thank
 
