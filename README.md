@@ -14,7 +14,7 @@
 
 𓈒 ⠀⠀hi hello you can either call me by zombi or axel! these are our collective names.. u can also just call me dust i really dont care. any nicknames are fine, i LOVE them!!
 
-𓈒 ⠀⠀bodily 17, use he/they pronouns on me thankss
+𓈒 ⠀⠀bodily 17, use he/they pronouns on me thankss .. i have a really squeaky voice and speech impediment ://
 
 𓈒 ⠀⠀i speak english but i can understand other languages like spanish and russian but i sometimes use a translator lelelelel. i was born in texas yeehaw im cowboy 
 
