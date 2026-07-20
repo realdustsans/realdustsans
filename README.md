@@ -3,12 +3,12 @@
 ![](https://komarev.com/ghpvc/?username=realdustsans&color=c593ea&label=˖Ი𐑼ֶָ⠀ROTTEN+RABBITS⠀&style=plastic&base=2900)
 
 <p align="center">
-  <img align="center" img width="350" height="350" alt="634dbfcfedccf9237cdb74286f06a52c" src="https://github.com/realdustsans/realdustsans/blob/main/Untitled399_20260621141653%20(1).png?raw=true" />
+  <img align="center" height="295" alt="634dbfcfedccf9237cdb74286f06a52c" src="https://github.com/realdustsans/realdustsans/blob/main/Untitled399_20260621141653%20(1).png?raw=true" />
 </p>
 
 <div align="center"> ㅤ </div>
 
- <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Cinzel+Decorative&size=22&pause=1000&color=cabee8&width=435&lines=I+CURL+UP+TO+DIE+INSIDE+YOUR+CHEST" alt="Typing SVG" /></a>
+ <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Cinzel+Decorative&size=19&pause=1000&color=cabee8&width=400&lines=I+CURL+UP+TO+DIE+INSIDE+YOUR+CHEST" alt="Typing SVG" /></a>
 
   <details>
   <summary>
