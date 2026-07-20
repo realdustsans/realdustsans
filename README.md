@@ -1,6 +1,6 @@
 <div id="header" align="center">
   
-![](https://komarev.com/ghpvc/?username=realdustsans&color=c593ea&label=ROTTEN+RABBITS&style=for-the-badge&base=2900)
+![](https://komarev.com/ghpvc/?username=realdustsans&color=c593ea&label=ROTTEN+RABBITS&style=plastic&base=2900)
 
 <p align="center">
   <img width="350" height="350" alt="634dbfcfedccf9237cdb74286f06a52c" src="https://github.com/realdustsans/realdustsans/blob/main/Untitled399_20260621141653%20(1).png?raw=true" />
@@ -90,9 +90,9 @@
 
 </details>
 
-<p align="center">
-  $\color{#cabee8}{\text{sign my atabook before i explode. time is ticking. }}$
-</p>
+<div align="center"> ㅤ </div>
+
+ $\small\color{#FFFFFF}{\textsf{sign}}$ $\small\color{#f1eaff}{\textsf{atabook}}$ $\small\color{#e7dbfd}{\textsf{for}}$ $\small\color{#DDCBF3}{\textsf{chocolate}}$ $\small\color{#CBB7F1}{\textsf{chip}}$ $\small\color{#C1A6F0}{\textsf{cookies}}$  <br>
 
 <p align="center">
   <a href="https://rentry.co/brainsdust"> rentry</a>⠀⠀⠀⠀<a href="https://rawblood.atabook.org/">新book</a>⠀⠀⠀⠀<a href="https://pronouns.cc/@realdustsans">prns</a>
