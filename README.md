@@ -18,7 +18,7 @@
 
 𓈒 ⠀⠀i speak english but i can understand other languages like spanish and russian but i sometimes use a translator lelelelel. i was born in texas yeehaw im cowboy 
 
-𓈒 ⠀⠀im trans (ftm) , aroace , and queerplatonic 
+𓈒 ⠀⠀im trans (ftm) and aroace ! i am currently taken and not looking for anyone ^^ 7 . 19 . 26
 
 𓈒 ⠀⠀im a dust sans introject n the host of a medically recognized P-DID system, don't have a diagnosis yet due 2 personal issues i prefer not to talk about it and just. living in america sigh ://
 
