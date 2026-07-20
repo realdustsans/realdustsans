@@ -36,11 +36,11 @@
     <b>　　｡　　𝄞　　byi </b>
   </summary>
 
-𓈒 ⠀⠀in recovery , iwc all the time unless friends.
+𓈒 ⠀⠀in recovery , iwc at all times unless friends.
 
 𓈒⠀⠀ i block people a lot, just be chill and you'll be fine
 
-𓈒⠀⠀ im a quiet person when u first meet me, i promise im talkative
+𓈒⠀⠀ im a quiet person when u first meet me, i promise im talkative!!
 
 𓈒 ⠀⠀im a rlly affectionate person touch is like my love language sorry 
 
@@ -59,7 +59,7 @@
 
 𓈒 ⠀⠀people i used to be friends with
 
-𓈒⠀⠀ rlly flirtly people , it gets to a point
+𓈒⠀⠀ rlly flirty people , it gets to a point
 
 𓈒 ⠀⠀yaoi/yuri fetishizers 
 
