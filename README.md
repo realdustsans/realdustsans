@@ -1,4 +1,5 @@
-
+<div id="header" align="center">
+  
 ![](https://komarev.com/ghpvc/?username=realdustsans&color=c593ea&label=ROTTEN+RABBITS&style=for-the-badge&base=2900)
 
 <p align="center">
