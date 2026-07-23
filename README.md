@@ -15,19 +15,19 @@
     <b>　　｡　　𝄞　　info </b>
   </summary>
 
-𓈒 ⠀call us by zombi/axel/murder, any nicknames is fine!
+𓈒 ⠀hi im soren, zombi/axel collectively. any nicknames is fine!
 
-𓈒 ⠀17 year old , he/they pronouns only
+𓈒 ⠀bodily 17 years old , he/they pronouns only
 
 𓈒 ⠀medically recognized P-DID system , most pages is about host 
 
-𓈒 ⠀taken by our lovely partner, hi augustine!!
+𓈒 ⠀taken by our lovely partner, hi augustine!! 7.19.26
 
-𓈒 ⠀if im on ponytown im prob offtab, so it's best to whisper me. there's a high chance i will respond late
+𓈒 ⠀if im on ponytown im prob offtab, so it's best to whisper me. there's a HIGH chance i will respond late.
 
 𓈒 ⠀c+h is heavily enc , i love sitting with people!! 99% of the time, im at UT area
 
-𓈒 ⠀we switch between using plural and singular 
+𓈒 ⠀we switch between using plural and singular
 
 </details>
 
@@ -38,11 +38,11 @@
 
 𓈒 ⠀⠀in recovery , iwc at all times unless friends.
 
-𓈒⠀⠀ i block people a lot, just be chill and you'll be fine
+𓈒⠀⠀ i temp block people a lot, just be chill and you'll be fine
 
 𓈒⠀⠀ im a quiet person when u first meet me, i promise im talkative!!
 
-𓈒 ⠀⠀im a rlly affectionate person touch is like my love language sorry 
+𓈒 ⠀⠀im a rlly affectionate person touch is like my love language sorry tell if uncomfy
 
 </details>
 
@@ -51,15 +51,15 @@
     <b>　　｡　　𝄞　　dni </b>
   </summary>
 
-𓈒 ⠀⠀<a href="https://dni-criteria.carrd.co/"> basic dni</a>
+𓈒 ⠀⠀<a href="https://dni-criteria.carrd.co/"> basic dni</a> + under 15
 
 𓈒 ⠀⠀senstive people n stuff like that
 
-𓈒 ⠀⠀roleplayers + delusional yumeshippers 
+𓈒 ⠀⠀IWEC roleplayers + delusional yumeshippers 
 
 𓈒 ⠀⠀people i used to be friends with
 
-𓈒⠀⠀ rlly flirty people , it gets to a point
+𓈒⠀⠀ rlly flirty people , it gets to a point i js get uncomfy
 
 𓈒 ⠀⠀yaoi/yuri fetishizers 
 
@@ -70,7 +70,7 @@
     <b>　　｡　　𝄞　　more </b>
   </summary>
 
-𓈒⠀⠀ we have really bad memory, sorry if we forget u or something
+𓈒⠀⠀ we have really bad memory, sorry if we forget you or something
 
 𓈒⠀⠀ communicate with us if ANY of us make u uncomfortable, please!
 
@@ -78,9 +78,9 @@
 
 𓈒 ⠀⠀i act mean as a joke, just tell me if you dont like that! 
 
-𓈒 ⠀⠀ask any questions , if u have any lol. 
+𓈒 ⠀⠀ask any questions on ata if you have any shrugs
 
-𓈒 ⠀⠀if u ever need to contact us all our socials are realdustsans ok thanks
+𓈒 ⠀⠀if u ever need to contact us all our socials are realdustsans/realdustsanss ok thanks
 
 </details>
 
